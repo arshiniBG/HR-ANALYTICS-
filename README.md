@@ -1,0 +1,1 @@
+ HR analytics is a powerful tool that enables organizations to leverage data to enhance their human resource functions, drive strategic initiatives, and ultimately improve overall business performance.
